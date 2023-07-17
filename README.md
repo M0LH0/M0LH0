@@ -1,4 +1,4 @@
-### Olá, Meu nome é Liam Silva Pernmabuco 🐸
+### Olá, Meu nome é Liam Silva Pernambuco 🐸
 
 - 🌱 Atualmente estudando engenharia de software na 42 sp
 - 🦎 Tenho um amor imenso por arte e adoro a ideia de mesclar criatividade com tecnologia
